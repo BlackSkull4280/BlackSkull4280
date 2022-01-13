@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @BlackSkull4280
+- 👀 I’m interested in FiveM Roleplay, Scripting in LUA
+- 🌱 I’m currently learning Scripting
+- 📫 How to reach me - Discord - BlackSkull4280#6966
